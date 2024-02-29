@@ -1,9 +1,9 @@
-https://designerapp.officeapps.live.com/designerapp/Media.ashx/?id=9af8a0ff-b63b-4092-b25c-8120bb550a50.mp4&fileToken=3c636656-3c5f-42be-95de-a10b6f91b431&dcHint=EastUS
 
 
 
 
 
+![LatecnologíaeshoyBrandbyDesigner](https://github.com/coronel2/coronel2/assets/136540670/cd1cdac3-0eda-4ad6-af52-52b4cb3ece7a)
 
 
 
