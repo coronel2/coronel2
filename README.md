@@ -1,5 +1,4 @@
 
-![image](https://github.com/coronel2/coronel2/assets/136540670/a671f8f3-8215-4c42-9bcb-56b351fbb89f)
 
 
 
