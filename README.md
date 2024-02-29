@@ -1,6 +1,6 @@
 Desarrollador Junior Apasionado por la Tecnología
 
-🚀 Soy un entusiasta desarrollador junior con una sólida base en tecnologías web, listo para contribuir y aprender en un entorno dinámico. Mi conjunto de habilidades incluye:
+🚀 Soy un entusiasta Educador y desarrollador junior, con enfasis en la enseñanza de la tecnologías web a niños y jóvenes, listo para contribuir y aprender en un entorno dinámico. Mi conjunto de habilidades incluye:
 
 💻 HTML
 🎨 CSS
