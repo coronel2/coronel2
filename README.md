@@ -1,9 +1,7 @@
 
 
+![Uploading Design.gif…]()
 
-
-
-![LatecnologíaeshoyBrandbyDesigner](https://github.com/coronel2/coronel2/assets/136540670/cd1cdac3-0eda-4ad6-af52-52b4cb3ece7a)
 
 
 
