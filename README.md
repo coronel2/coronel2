@@ -10,9 +10,8 @@ Acerca de mi:
 
 🚀 Soy un entusiasta Educador y desarrollador junior, con enfasis en la enseñanza de la tecnologías web a niños y jóvenes, listo para contribuir un grano de arena a las futuras generaciones.
 
-Habilidades tecnologícas:
+![Grafico Datos Proyecto Resultados Colorido Pastel](https://github.com/coronel2/coronel2/assets/136540670/2f6526c9-a4f0-4ab5-a8c4-9dbcb7464f4e)
 
-![Grafico Datos Proyecto Resultados Colorido Pastel](https://github.com/coronel2/coronel2/assets/136540670/ad21033b-6515-4df8-bfaa-38a8723a9438)
 
 
 
